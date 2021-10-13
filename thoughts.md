@@ -3,3 +3,5 @@
 
 1. Using keyboard shortcuts as much as possible
 2. Reviewing notes and previewing the next lesson
+
+My partner has been extremely supportive!
