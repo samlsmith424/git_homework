@@ -5,3 +5,6 @@
 2. Reviewing notes and previewing the next lesson
 
 My partner has been extremely supportive!
+
+1. I would like to spend more time reading about code my off time (in the most balanced way possible)
+2. Another intention is to practice on the regular
